@@ -1,2 +1,2 @@
 
-My scond manual update
+My scond manual update.
